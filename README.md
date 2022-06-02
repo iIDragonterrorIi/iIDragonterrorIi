@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @iIDragonterrorIi
+- 👀 I’m interested in learning code!
+- 💞️ I’m looking to collaborate on anything!
+- 📫 How to reach me email me at dragonterroralt@gmail.com
